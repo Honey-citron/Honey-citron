@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Honey-citron
+- 👀 I’m interested in singing, photography and browsing BiliBili website
+- 🌱 I’m currently learning My SQL
+- 📫 How to reach me 3350347746@qq.com
